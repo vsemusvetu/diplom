@@ -1,2 +1,0 @@
-# vsemusvetu
-vsemusvetu
